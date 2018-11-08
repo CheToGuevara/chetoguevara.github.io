@@ -1,4 +1,4 @@
-[Android SDK portable](https://we.tl/t-RQnz2s2bBe)
+[Android SDK portable](https://we.tl/t-zvPN3ym2ad)
 
 ## Welcome to GitHub Pages
 
